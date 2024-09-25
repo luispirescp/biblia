@@ -13,7 +13,7 @@ direção e sem segurança, como um pedaço de palha soprado pelo vento.
 5 - Por isso, no dia do julgamento preparado por Deus, eles serão condenados. Os pecadores
 não terão lugar entre os que obedecem a Deus.
 6 - O Senhor conhece e aprova a vida de quem obedece suas leis, mas a vida dos homens que
-desprezam a Deus acabará em castigo e sofrimento.
+desprezam a Deus acabará em castigo e sofrimento.  
 SALMO - 2
 1 - POR QUE OS POVOS, cheios de ódio, se reuniram? Por que estão fazendo planos tolos,
 tentando enganar a Deus?
