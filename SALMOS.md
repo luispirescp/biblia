@@ -37,7 +37,7 @@ enquanto há tempo!
 11 - Sirvam obedientemente ao Senhor; respeitem a Deus e façam dEle a sua fonte de alegria.
 12 - Ajoelhem-se diante do Filho e beijem os seus pés, antes que chegue o dia da ira do
 Senhor e vocês sejam todos destruídos. Cuidado, isso vai acontecer muito mais depressa do
-que pensam! Porém as pessoas que confiam nEle serão felizes, muito felizes!
+que pensam! Porém as pessoas que confiam nEle serão felizes, muito felizes!  
 SALMO - 3
 1 - Ó SENHOR, COMO cresceu o número dos meus inimigos! Há muita gente contra mim,
 querendo me destruir.
@@ -50,7 +50,7 @@ porque o Senhor cuida de mim.
 6 - Agora mesmo, cercado de todos os lados por um exército de dez mil inimigos, não tenho
 medo!
 7 - Pedirei a Ele: "Levanta-Te Senhor! Salva-me, meu Deus!" Então, Ele ataca os meus inimigos, fere os seus queixos e quebra os seus dentes.
-8 - Isso acontece porque a salvação pertence ao Senhor. Ele dá grandes bênçãos ao seu povo!
+8 - Isso acontece porque a salvação pertence ao Senhor. Ele dá grandes bênçãos ao seu povo!  
 SALMO - 4
 1 - Ó MEU DEUS, aos teus olhos fui considerado justo. Por isso, escuta e responde o meu
 pedido de ajuda. No passado, quando estive em dificuldades, Tu me livraste. Dá-me mais uma
@@ -69,7 +69,7 @@ estão enganados. Coloca sobre nós a luz do teu rosto!
 7 - Assim, a minha alegria é muito maior que a dos meus inimigos, apesar deles terem comida
 de sobra no tempo da colheita.
 8 - Quando vou dormir, meu coração está em perfeita paz e tenho um sono bem tranqüilo
-porque Tu, ó Senhor, me dás a mais perfeita segurança.
+porque Tu, ó Senhor, me dás a mais perfeita segurança.  
 SALMO - 5
 1 - SENHOR, OUVE AS minhas palavras! Escuta a oração que eu faço em silencio, no fundo da
 alma!
@@ -96,7 +96,7 @@ revoltaram contra Ti.
 cantem de alegria porque Tu mesmo lhes dás proteção e segurança! Dê a tua alegria às
 pessoas que Te amam de coração
 12 - porque Tu, Senhor, abençoas o homem que Te obedece. Tu cercas o homem justo com o
-escudo da tua bondade.
+escudo da tua bondade.  
 SALMO - 6
 1 - SENHOR, NÃO ME castigues quando estiveres muito zangado! Não me castigues quando o
 calor da tua ira estiver muito forte!
@@ -113,7 +113,7 @@ inimigos que tenho.
 8 - Vamos, saiam de perto de mim, todos vocês que vivem desobedecendo a Deus! Saiam de
 perto de mim porque o Senhor já ouviu minha oração cheia de tristeza.
 9 - O Senhor ouve todos os meus humildes pedidos e responde às minhas orações.
-10 - Todos os meus inimigos vão fugir de mim, de repente, cheios de vergonha e de medo!
+10 - Todos os meus inimigos vão fugir de mim, de repente, cheios de vergonha e de medo!  
 SALMO - 7
 1 - SENHOR, DEUS MEU, Tu és a minha proteção; salva-me de todos esses inimigos que me
 perseguem.
@@ -145,7 +145,7 @@ todos os detalhes e, afinal, acaba fazendo nascer a traição e a mentira.
 16 – A desgraça que ele planejou para outros, acaba caindo sobre sua própria cabeça; ele
 mesmo acaba sofrendo a violência que desejava cometer contra outra pessoa.
 17 - Eu, por outro lado, darei graças e louvarei ao Senhor, o Grande Deus, por causa da sua
-justiça perfeita.
+justiça perfeita.  
 SALMO - 8
 1 - Ó SENHOR, NOSSO Senhor, a majestade é a glória do teu nome enchem completamente a
 terra e todo o universo.
@@ -161,7 +161,7 @@ homem grande glória e grande honra!
 7 - o gado e as ovelhas, os animais do campo e da floresta,
 8 - as aves no céu e os peixes do mar, sim tudo que vive nos mares.
 9 - Ó Senhor, nosso Senhor, a majestade e a glória do teu nome enchem completamente a
-terra!
+terra!  
 SALMO - 9
 1 - SENHOR, EU TE louvarei de todo o meu coração! Anunciarei ao mundo as tuas obras
 maravilhosas.
@@ -199,7 +199,7 @@ as nações que deixam Deus de lado.
 dificuldades mas confia no Senhor, não esperará em vão.
 19 - Ó Senhor! Levanta-Te e julga as nações! Não deixe que elas o vençam! Faze os povos
 sentirem medo e respeito por Ti; dá às nações o castigo que elas merecem, até aprenderem
-que não passam de simples mortais!
+que não passam de simples mortais!  
 SALMO - 10
 1 - POR QUE, SENHOR, Tu permaneces afastado na hora do sofrimento? Por que Te escondes
 de mim?
@@ -234,7 +234,7 @@ Descobre todos os seus pecados e castiga um por um!
 17 - Senhor, Tu conheces o desejo das pessoas humildes. Socorre essa gente; dá lhes o que
 necessitam!
 18 - Cuida do bem estar dos órfãos e explorados! Mostra o teu grande amor pelos humildes,
-para que o homem pecador não possa mais espalhar o medo entre eles.
+para que o homem pecador não possa mais espalhar o medo entre eles.  
 SALMO - 11
 1 - O SENHOR É o meu lugar seguro, onde me escondo. Por que então vocês vêm me dizer,
 Fuja para as montanhas, como um pássaro! Lá você ficará em segurança?
@@ -250,7 +250,7 @@ de quem vive à base de violência.
 6 - Castigará os pecadores desobedientes com uma chuva de fogo e enxofre; a recompensa
 das maldades dessa gente será o vento quente da ira do Senhor.
 7 - O Senhor ama a justiça, porque Ele é justo. Quem obedece de coração sua Lei, viverá na
-sua presença.
+sua presença.  
 SALMO - 12
 1 - SENHOR, SOCORRO! Os homens retos estão desaparecendo depressa; é impossível achar
 um homem sincero entre o povo!
@@ -266,7 +266,7 @@ salvação."
 refinada sete vezes.
 7 - Sim, Senhor, temos certeza de que Tu nos salvarás dos perversos. Tu nos protegerás,
 8 - embora os maus estejam em toda parte, porque a falta de caráter é considerada uma
-virtude pela sociedade.
+virtude pela sociedade.  
 SALMO - 13
 1 - SENHOR, ATÉ quando vais Te esquecer de mim? Para sempre? Até quando me voltarás as
 costas no tempo da dificuldade?
@@ -278,7 +278,7 @@ luz, senão eu me perco nesta escuridão e acabo morrendo.
 adversários se alegrarem com a minha queda.
 5 - Porque confio inteiramente no teu amor cuidadoso. Cantarei com grande alegria quando Tu
 me salvares.
-6 - Sim, cantarei louvando ao Senhor porque Ele mostrou sua grande bondade para comigo.
+6 - Sim, cantarei louvando ao Senhor porque Ele mostrou sua grande bondade para comigo.  
 SALMO - 14
 1 - O HOMEM QUE DIZ: "Deus não existe!", é completamente louco. O resultado dessa idéia
 errada é a perda da moral. Quem acha que Deus não se importa com nossa vida é incapaz de
@@ -296,7 +296,7 @@ vontade.
 os justos.
 7 - Ah, quem me dera que o Senhor surgisse em Jerusalém e viesse salvar o seu povo!
 Quando isso acontecer e o Senhor libertar seu povo da opressão, então Israel cantará de
-alegria!
+alegria!  
 SALMO - 15
 1 - SENHOR, QUEM poderá viver na tua presença? Quem terá livre acesso ao Lugar Santo
 onde Tu vives?
@@ -309,7 +309,7 @@ elogia os adoradores do Senhor; quem sofre prejuízo mas não deixa de cumprir a
 dada.
 5 - Quem empresta seu dinheiro aos necessitados sem cobrar juros; quem se recusa a mentir
 por dinheiro para condenar uma pessoa inocente. Um homem assim permanecerá firme para
-sempre na presença de Deus.
+sempre na presença de Deus.  
 SALMO - 16
 1 - PROTEGE-ME Ó DEUS, porque em Ti eu venho procurar abrigo!
 2 - Eu disse ao Senhor: "Tu és o meu Senhor. Tu és a minha única riqueza."
@@ -329,7 +329,7 @@ tropeçarei.
 10 - Tu não deixarás o meu corpo ficar preso pelos laços da morte; não permitirás que o teu
 Amado seja roído pelos vermes debaixo da terra.
 11 - Tu me mostrarás os caminhos da vida. Junto a Ti há sempre a mais profunda alegria; ao
-teu lado, os prazeres mais deliciosos da tua eterna presença.
+teu lado, os prazeres mais deliciosos da tua eterna presença.  
 SALMO - 17
 1 - Ó SENHOR, OUVE os meus justos pedidos de ajuda! Atende a minha oração porque os
 meus lábios sempre falaram a verdade, sem enganar ninguém.
@@ -358,7 +358,7 @@ Tudo que eles esperam ganhar de bom são as riquezas deste mundo. Eles têm comi
 sobra, muitos filhos e tesouros para deixar como herança para seus filhos e netos.
 15 - Mas, para mim, o que realmente tem valor é chegar diante de Ti com a certeza de uma
 vida justa e correta. Assim, quando eu despertar para a outra vida, ficarei feliz ao ver que me
-tornaste semelhante a Ti mesmo!
+tornaste semelhante a Ti mesmo!  
 SALMO - 18
 1 - SENHOR, EU TE AMO! Tu és a minha fonte de poder!
 2 - O Senhor é a fortaleza onde me escondo e fico em segurança. Ele é o meu Libertador. Ele é
@@ -449,7 +449,7 @@ poderosos e violentos.
 49 - Por isso, Senhor, eu Te louvarei entre as nações e cantarei glórias ao teu nome!
 50 - O Senhor dá grandes vitórias ao seu rei escolhido; Ele me mostra a sua bondade e
 continuará mostrando essa mesma bondade aos meus filhos e netos que ocuparem o meu
-trono, para todo sempre.
+trono, para todo sempre.  
 SALMO - 19
 1 - OS CÉUS ANUNCIAM ao mundo a glória de Deus. Eles são uma prova fantástica da
 capacidade de criação de Deus.
@@ -477,7 +477,7 @@ favor, Senhor, perdoa estes meus pecados ocultos!
 13 - Não deixes que eu seja dominado pelo orgulho. Assim ficarei livre da culpa, e escaparei
 de cometer grandes pecados.
 14 - Desejo que as minhas palavras e os meus pensamentos íntimos sejam sempre agradáveis
-a Ti, Senhor, minha Rocha e meu Libertador!
+a Ti, Senhor, minha Rocha e meu Libertador!  
 SALMO - 20
 1 - NO DIA EM que você passar por sofrimentos, espero que o Senhor esteja ao seu lado!
 Assim, o Deus de Jacó elevará você acima dos problemas, em perfeita segurança.
